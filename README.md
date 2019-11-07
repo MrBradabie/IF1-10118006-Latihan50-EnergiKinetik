@@ -1,0 +1,1 @@
+# IF1-10118006-Latihan50-EnergiKinetik
